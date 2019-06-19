@@ -1,6 +1,6 @@
 ## Bijlagen
 
-Hier komen de bijlagen
+Hier komen de bijlagen...
 
 ### Bijlage 1
 
